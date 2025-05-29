@@ -1,1 +1,1 @@
-# 1tri-Satoro-Gojo
+# 2tri-Satoro-Gojo
